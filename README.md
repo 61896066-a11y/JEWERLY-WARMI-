@@ -1,2 +1,2 @@
 # JEWERLY-WARMI-
-Una ayuda para tu slaud y bienestar
+Una ayuda para tu salud y bienestar
